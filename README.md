@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @TJ9867
+- 👀 I’m interested in stuff and sometimes things.
